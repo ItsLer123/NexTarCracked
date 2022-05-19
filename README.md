@@ -1,3 +1,3 @@
 # NexTarCracked
-Known Pastor, Metr.cc Paste Very Shit 
-Cracked By Duck
+Known Pastor, Metr.cc Paste Very Shit.
+Cracked By Duck ;)
